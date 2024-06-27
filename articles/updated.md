@@ -8,3 +8,5 @@ landed in a much say an ESG researcher understanding their expsoure model
 lot's of reading but can say 30% was coding stuff so enjoy a lot.
 Hope my knowledge from ESG Research will help the Capture team 🤞.
 
+## sanket patil
+# hi msci
